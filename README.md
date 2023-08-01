@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @YuryDrob
 - 👀 I’m interested in study new things
 - 🌱 I’m currently learning Front End from 0 skils
-- 💞️ I’m looking to collaborate on my dream - work on sea, lol
+- 💞️ I want to not think about money and sometimes work near the sea, lol.
 - 📫 How to reach me [Telegram](https://t.me/maverrr77) 
 
 <!---
