@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YuryDrob
-- 👀 I’m interested in study new things
+-
 - 📫 How to reach me [Telegram](https://t.me/maverrr77) 
 
 <!---
